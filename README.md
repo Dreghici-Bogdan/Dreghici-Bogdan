@@ -1,5 +1,5 @@
 ### Hi there 👋
-![](https://github.com/912-Dreghici-Bogdan/9O_2k2_jsrJhik6a5838ipgV9Uo9PGy2Ht04wvv0FdU.mp4)
+![][(https://github.com/912-Dreghici-Bogdan](https://github.com/912-Dreghici-Bogdan/912-Dreghici-Bogdan/edit/main/README.md)/9O_2k2_jsrJhik6a5838ipgV9Uo9PGy2Ht04wvv0FdU.mp4)
 
 
 <!--
