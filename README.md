@@ -1,4 +1,6 @@
 ### Hi there 👋
+![](https://github.com/912-Dreghici-Bogdan/9O_2k2_jsrJhik6a5838ipgV9Uo9PGy2Ht04wvv0FdU.mp4)
+
 
 <!--
 **912-Dreghici-Bogdan/912-Dreghici-Bogdan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
