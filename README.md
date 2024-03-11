@@ -1,4 +1,5 @@
 ### Hi there 👋
+![9O_2k2_jsrJhik6a5838ipgV9Uo9PGy2Ht04wvv0FdU](https://github.com/912-Dreghici-Bogdan/912-Dreghici-Bogdan/assets/115081661/1213ea4f-ad30-41f7-85a8-d0df9f6a62df)
 
 
 <!--
